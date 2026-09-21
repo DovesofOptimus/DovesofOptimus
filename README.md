@@ -9,3 +9,8 @@
 
 
 
+<table align="center"><th>
+<details><summary> <br>${\textsf{\color{#D0D0D9}  ͜͝ ̣̣̥| ̥̈◟ ͜𓏼˚ }}$ ${\textsf{\color{#A1ACC4}s.kіᥒ}}$ ${\textsf{\color{#40567C} ͜𓉳◞  ྀི︶˚̣̣̣   }}$</summary>
+<img width="192" height="284" alt="pony-town-✧ 【いいこ】 ╯ me。 tfp ︶◝ o-p-trot-padded-toy390-4x" src="https://github.com/user-attachments/assets/88b499f4-3dc9-435b-bec5-e86c42af7804" />
+
+
