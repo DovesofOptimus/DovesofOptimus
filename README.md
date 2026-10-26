@@ -7,6 +7,8 @@
 
 <img width="2048" height="27" alt="divider" src="https://github.com/user-attachments/assets/9fae6534-c558-496e-ab25-b6bcaf0fa98b" />
 
+[<img width="261" height="119" alt="1000002030" src="https://github.com/user-attachments/assets/3f5de600-77b5-4efd-84ab-0d6aabede937" />](https://primusdoves.atabook.org/) [<img width="261" height="119" alt="Untitled21_20261026202144" src="https://github.com/user-attachments/assets/e4389f12-d7c4-47af-8dbc-2da945430d1d" />](https://pronouns.cc/@t.illallareone)
+
 
 
 <table align="center"><th>
